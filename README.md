@@ -1,4 +1,4 @@
-### Canva - business cards
+### Canva PRO(US$9.95) - business cards
 ---
 https://www.canva.com/
 
