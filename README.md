@@ -8,10 +8,23 @@ https://www.canva.com/
 // Activated LOGO
 ♤♧
 
+a♤a
+a♧a
+
+
+♤♧
+aaaa
+
+♤♧
+ 〇
+
+
+
 
 ```
 
 ```
+
 ```
 
 ```
