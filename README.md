@@ -6,15 +6,19 @@ https://www.canva.com/
 
 ```
 // Activated LOGO
+1　ヴィトン
 ♤♧
 
+2　　
 a♤a
 a♧a
 
 
-♤♧
-aaaa
+3 エルメス
+ ♤♧
+aaaaaa
 
+4
 ♤♧
  〇
 
